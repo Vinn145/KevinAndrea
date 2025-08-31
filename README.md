@@ -29,7 +29,7 @@
 
 ## 📫 Hubungi saya
 - Instagram: [@kevin_giornetti](https://www.instagram.com/kevin_giornett)  
-- Email: kevinandrea@gmail.com  
+- Email: zonaceluler6@gmail.com  
 - LinkedIn: (https://id.linkedin.com/in/kevin-andrea-238927363?trk=people-guest_people_search-card)
 
 
